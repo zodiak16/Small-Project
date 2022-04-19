@@ -1,2 +1,2 @@
 # Small-Project
-Thanks for visiting my project |:happy:|
+Thanks for visiting my project 🙏
